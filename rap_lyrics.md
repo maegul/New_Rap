@@ -18,8 +18,8 @@ Here's the Hip-Hopapotamus
 The hip hop hippo
 
 ## Verse 2
-<!-- They call me the Hip-Hopapotamus -->
-<!-- My lyrics are bottomless -->
+They call me the Hip-Hopapotamus
+My lyrics are bottomless
 
 ## Verse 3
 Sometimes my rhymes are polite
