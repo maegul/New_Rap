@@ -4,18 +4,18 @@ _Flight of the Conchords_
 
 
 ## Verse 1
-<!-- I'm the mother flippin' Rhymenocerous -->
-<!-- My beats are fat and the birds are on my back -->
-<!-- And I'm horny (I'm horny) -->
-<!-- If you choose to proceed you will indeed concede -->
-<!-- 'Cause I hit you with my flow -->
-<!-- The Wild Rhino Stampede -->
-<!-- I'm not just wild, I'm trained, domesticated -->
-<!-- I was raised by a rapper and rhino that dated -->
-<!-- And subsequently procreated -->
-<!-- That's how it goes -->
-<!-- Here's the Hip-Hopapotamus -->
-<!-- The hip hop hippo -->
+I'm the mother flippin' Rhymenocerous
+My beats are fat and the birds are on my back
+And I'm horny (I'm horny)
+If you choose to proceed you will indeed concede
+'Cause I hit you with my flow
+The Wild Rhino Stampede
+I'm not just wild, I'm trained, domesticated
+I was raised by a rapper and rhino that dated
+And subsequently procreated
+That's how it goes
+Here's the Hip-Hopapotamus
+The hip hop hippo
 
 ## Verse 2
 <!-- They call me the Hip-Hopapotamus -->
