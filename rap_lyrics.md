@@ -83,8 +83,3 @@ I'm the motherflippin'
 Motherflippin
 
 This is some random text
-
-This some more random text
-
-
-This is more random text
