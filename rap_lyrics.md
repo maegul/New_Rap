@@ -44,10 +44,10 @@ Mmmph, Steve
 
 
 ## Verse 5
-<!-- My rhymes and records they don't get played -->
-<!-- Because my records and rhymes they don't get made -->
-<!-- And if you rap like me you don't get paid -->
-<!-- And if you roll like me you don't get laid -->
+My rhymes and records they don't get played
+Because my records and rhymes they don't get made
+And if you rap like me you don't get paid
+And if you roll like me you don't get laid
 
 ## Verse 6
 <!-- My rhymes are so potent that in this small segment -->
