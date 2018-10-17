@@ -3,7 +3,7 @@
 _Flight of the Conchords_
 
 
-## Verse 1
+## Verse 1 ... Worst Verse
 I'm the mother flippin' Rhymenocerous
 My beats are fat and the birds are on my back
 And I'm horny (I'm horny)
