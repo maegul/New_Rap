@@ -22,15 +22,15 @@ The hip hop hippo
 <!-- My lyrics are bottomless -->
 
 ## Verse 3
-<!-- Sometimes my rhymes are polite -->
-<!-- Like "Thank you for dinner, Ms. Wright -->
-<!-- That was very delicious, good night" -->
-<!-- Sometimes they're obscene -->
-<!-- Like a pornographic dream -->
-<!-- NC-17 with ladies in a  -->
-<!-- Stream of margarine -->
-<!-- Ha ha ha ha ha ha, yeah -->
-<!-- Some margarine -->
+Sometimes my rhymes are polite
+Like "Thank you for dinner, Ms. Wright
+That was very delicious, good night"
+Sometimes they're obscene
+Like a pornographic dream
+NC-17 with ladies in a 
+Stream of margarine
+Ha ha ha ha ha ha, yeah
+Some margarine
 
 ## Verse 4
 <!-- They call me the Hip-Hopapotamus -->
