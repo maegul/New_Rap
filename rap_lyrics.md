@@ -33,14 +33,14 @@ Ha ha ha ha ha ha, yeah
 Some margarine
 
 ## Verse 4
-<!-- They call me the Hip-Hopapotamus -->
-<!-- Flows that glow like phosphorous -->
-<!-- Poppin' off the top of this esophagus -->
-<!-- Rockin' this metropolis -->
-<!-- I'm not a large water-dwelling mammal -->
-<!-- Where did you get that preposterous hypothesis? -->
-<!-- Did Steve tell you that, perchance? -->
-<!-- Mmmph, Steve -->
+They call me the Hip-Hopapotamus
+Flows that glow like phosphorous
+Poppin' off the top of this esophagus
+Rockin' this metropolis
+I'm not a large water-dwelling mammal
+Where did you get that preposterous hypothesis?
+Did Steve tell you that, perchance?
+Mmmph, Steve
 
 
 ## Verse 5
@@ -57,27 +57,27 @@ Some margarine
 
 
 ## Verse 7
-<!-- Other rappers dis me -->
-<!-- Say my rhymes are sissy -->
-<!-- Why? Why? Why? -->
-<!-- What? -->
-<!-- Why exactly? -->
-<!-- What? Why? -->
-<!-- Be more constructive with your feedback, please, why? -->
-<!-- Why? -->
+Other rappers dis me
+Say my rhymes are sissy
+Why? Why? Why?
+What?
+Why exactly?
+What? Why?
+Be more constructive with your feedback, please, why?
+Why?
 
 ## Verse 8
-<!-- Why, because I rap about reality? -->
-<!-- Like me and my grandma drinking a cup of tea? -->
-<!-- There ain't no party like my nana's tea party -->
-<!-- Hey! Ho! -->
-<!--  -->
-<!-- I'm the motherflippin' -->
-<!-- I'm the motherflippin' -->
-<!-- I'm the motherflippin' -->
-<!-- Who's the motherflippin'? -->
-<!--  -->
-<!-- I'm the motherflippin' -->
-<!-- I'm the motherflippin' -->
-<!-- I'm the motherflippin' -->
-<!-- Motherflippin -->
+Why, because I rap about reality?
+Like me and my grandma drinking a cup of tea?
+There ain't no party like my nana's tea party
+Hey! Ho!
+
+I'm the motherflippin'
+I'm the motherflippin'
+I'm the motherflippin'
+Who's the motherflippin'?
+
+I'm the motherflippin'
+I'm the motherflippin'
+I'm the motherflippin'
+Motherflippin
