@@ -83,3 +83,7 @@ I'm the motherflippin'
 Motherflippin
 
 This is some random text
+
+Here is a new line
+
+And a third
